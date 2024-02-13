@@ -1,2 +1,0 @@
-# jod.github.io
--.-
